@@ -72,8 +72,8 @@ We collaborate with:
 Whether you’re a founder, business owner, investor, or engineer — we’d love to talk.
 
 🌐 Website: Coming Soon  
-📧 Email: hello@innovorus.com  
-📍 Based in Pakistan – Serving Globally
+📧 Email: contact@innovorus.com  
+📍 Serving Globally
 
 ---
 
